@@ -1,4 +1,4 @@
-## Boas vindas ao meu perfil 🖤
+##  Welcome to my perfil 🖤
 
 Meu nome é Eduarda Muriel
 
